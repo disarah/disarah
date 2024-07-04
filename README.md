@@ -1,16 +1,14 @@
-## Hi there 👋
+## Hi there 👋 
 
-<!--
-**disarah/disarah** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+I’m most likely coding and working on projects. You can find out more about my work on [my website](sarahdi.com).
 
-Here are some ideas to get you started:
+ =^..^=   =^..^=   =^..^=    =^..^=    =^..^=    =^..^=    =^..^=
+<*><*><*><*><*><*><*><*><*><*><*><*><*><*><*><*><*><*><*><*><*><*>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Here are some random facts:
+- 🌱 I like to knit.
+- 💬 Ask me about satin vs silk (hint: it's a trick question)
+- 📫 How to reach me: I'm active on most platforms as @snidarah
+- ⚡ Fun fact: I play the guzheng 😎
+
+<*><*><*><*><*><*><*><*><*><*><*><*><*><*><*><*><*><*><*><*><*><*>
