@@ -2,8 +2,11 @@
 
 I’m most likely coding and working on projects. You can find out more about my work on [my website](sarahdi.com).
 
- =^..^=   =^..^=   =^..^=    =^..^=    =^..^=    =^..^=    =^..^=
-<*><*><*><*><*><*><*><*><*><*><*><*><*><*><*><*><*><*><*><*><*><*>
+ /\_/\   /\_/\   /\_/\   /\_/\   /\_/\   /\_/\   /\_/\   /\_/\  
+( o.o ) ( o.o ) ( o.o ) ( o.o ) ( o.o ) ( o.o ) ( o.o ) ( o.o ) 
+ > ^ <   > ^ <   > ^ <   > ^ <   > ^ <   > ^ <   > ^ <   > ^ <
+ 
+<\*><\*><\*><\*><\*><\*><\*><\*><\*><\*><\*><\*><\*><\*><\*><\*><\*><\*><\*><\*><\*><\*>
 
 Here are some random facts:
 - 🌱 I like to knit.
@@ -11,4 +14,4 @@ Here are some random facts:
 - 📫 How to reach me: I'm active on most platforms as @snidarah
 - ⚡ Fun fact: I play the guzheng 😎
 
-<*><*><*><*><*><*><*><*><*><*><*><*><*><*><*><*><*><*><*><*><*><*>
+<\*><\*><\*><\*><\*><\*><\*><\*><\*><\*><\*><\*><\*><\*><\*><\*><\*><\*><\*><\*><\*><\*>
